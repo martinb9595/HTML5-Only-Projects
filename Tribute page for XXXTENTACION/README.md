@@ -1,0 +1,1 @@
+![screencapture-file-C-Users-Acer-Desktop-Projects-HTML5-Tribute-page-for-XXXTENTACION-index-html-2022-09-06-21_51_14](https://user-images.githubusercontent.com/83338805/188716062-cc00c299-10c0-465e-bfc1-b460f671ce47.png)
